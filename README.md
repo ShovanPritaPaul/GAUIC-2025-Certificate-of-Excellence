@@ -1,0 +1,1 @@
+# GAUIC-2025-Certificate-of-Excellence
